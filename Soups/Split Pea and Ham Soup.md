@@ -2,7 +2,7 @@
 
 ## Ingredients
 
-* 600 to 700 g chicken necks
+* 1 to 1 1/2 kg chicken bones
 * 7 cups water
 * 1/2 tsp salt
 * 1/2 tsp ground pepper
@@ -40,7 +40,7 @@ Add chicken stock, split peas, lentils, black beans, paprika and cayenne then st
 
 Drain the potatoes and add, stirring again.
 
-Add ham hock, ensuring it is submerged.
+Add ham hock, submergingg it as much as possible.
 
 NB: Make sure the soup is below the maximum volume line, removing soup if necessary.
 
