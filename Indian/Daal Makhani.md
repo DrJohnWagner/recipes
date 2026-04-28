@@ -3,15 +3,16 @@
 ## Ingredients
 * 3 cups Black gram dal / whole urad dal
 * 1 cup dried black beans
-* 4 T. olive oil
+* 4 T. ghee or neutral oil
 * 2 T. Cumin seeds
 * 2 dry bay leaves
 * 2 medium white onions, finely chopped
+* 4 to 6 green chillies, slit
 * 1 T. chopped ginger
 * 2 T. minced garlic
 * 4 T. chopped cilantro
 * 1 t. turmeric powder
-* 4 t. Kashmiri chili powder
+* 2 to 4 t. Kashmiri chili powder
 * 4 tomatoes, finely chopped
 * 1 T. cumin powder
 * 1 t. coriander powder
