@@ -7,16 +7,16 @@
 * 2 T. Cumin seeds
 * 2 dry bay leaves
 * 2 medium white onions, finely chopped
-* 2 t. chopped ginger
+* 1 T. chopped ginger
 * 2 T. minced garlic
 * 4 T. chopped cilantro
 * 1 t. turmeric powder
 * 4 t. Kashmiri chili powder
 * 4 tomatoes, finely chopped
-* 2 t. cumin powder
+* 1 T. cumin powder
 * 1 t. coriander powder
 * 4 T. dried fenugreek leaves
-* 1 t. salt
+* 2 t. salt
 * 4 c. vegetable broth
 * 4 c. water
 * 1/2 c. cream (optional)
