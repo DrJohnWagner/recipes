@@ -1,6 +1,9 @@
 # Black Currant Honey Wheat Bread
 
+A dense, fruity wheat loaf sweetened with honey and black currant juice, studded with dried currants.
+
 ## Ingredients
+
 * 1 1/8 cups black currant juice
 * 2 Tbsp honey
 * 2 Tbsp brown sugar
@@ -12,16 +15,12 @@
 * 1/3 cup dried black currants
 
 ## Steps
-Mix white and wholemeal flours and salt in a big bowl. Heat black currant juice until warm to the touch (about 110F or 43C), then add honey and brown sugar and stir thoroughly. Sprinkle yeast evenly on top and let sit for about 10 minutes, or until all of the yeast has settled to the bottom and a thick (ca. 1/2 inch or 1 cm) layer of foam has formed at the surface.
 
-Take out about 1/2 cup of flour and dump it on your clean table, then pour the liquid into the remaining flour. Add olive oil and stir, forming a ball of dough. Knead on the table for a full 20 minutes, using additional flour as needed when the dough becomes too sticky to knead.
-
-After kneading use a dough roller to roll the dough into a flat sheet about 1/4 inch or 1/2 cm thick, then spread dried currants evenly on top and roll the dough up into a log. Knead the dough for another few minutes until the currants are evenly distributed throughout the dough, and then form the dough into a smotth ball. Clean your large bowl and then coat the inside with a thin layer of olive oil.
-
-Take the upper rack out of the oven and warm the oven to about 115F or 45C. Place the dough inside the bowl, cover with parchment paper and set in the warmed oven. Place a cookie sheet in the bottom of the oven and pour 1 cup of boiling water into the cookie sheet. Close the oven and let the dough rise for about an hour until the volume has approximately doubled.
-
-After first rise is done, dump the dough onto your table and knead for 5 minutes. Form the dough into a loaf shape and place in a bread pan that has been lightly greased with olive oil. Place back inside the warm oven and let rise for another hour until the dough has doubled again. The dough should now look like a perfectly formed loaf of bread.
-
-Carefully pull out the cookie sheet, close the oven door and bake at 375F (190C) for about 25 minutes, or until the crust is golden brown. Remove the bread from the oven, let cool for a few minutes and then remove the bread from the bread pan and let cool on a rack for about 15 minutes.
-
-Serve warm with butter and black currant and/or apple jam!
+1. Mix white and wholemeal flours and salt in a large bowl.
+2. Heat black currant juice to about 110°F (43°C). Add honey and brown sugar and stir thoroughly. Sprinkle yeast evenly on top and let sit for 10 minutes until a thick layer of foam (about 1/2 inch / 1 cm) forms at the surface.
+3. Reserve 1/2 cup flour on a clean work surface. Pour the liquid into the remaining flour, add olive oil, and stir to form a dough ball. Knead for 20 minutes, adding reserved flour as needed when the dough becomes too sticky.
+4. Roll the dough into a sheet about 1/4 inch (1/2 cm) thick. Spread dried currants evenly on top, roll into a log, then knead a few more minutes until currants are evenly distributed. Form into a smooth ball.
+5. Coat a large clean bowl with olive oil. Remove the upper oven rack and warm the oven to 115°F (45°C). Place dough in the bowl, cover with parchment paper, and set in the oven. Pour 1 cup boiling water into a cookie sheet on the oven floor. Let rise for about 1 hour until doubled in volume.
+6. Knock back the dough and knead for 5 minutes. Shape into a loaf and place in a lightly greased bread pan. Return to the warm oven and let rise for another hour until doubled again.
+7. Remove the cookie sheet, close the oven door, and bake at 375°F (190°C) for about 25 minutes until the crust is golden brown.
+8. Cool in the pan for a few minutes, then turn out onto a rack for 15 minutes. Serve warm with butter and black currant or apple jam.

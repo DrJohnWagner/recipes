@@ -1,4 +1,4 @@
-# Daal Makhani
+# Dal Makhani
 
 ## Ingredients
 * 3 cups Black gram dal / whole urad dal
