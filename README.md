@@ -11,6 +11,10 @@ All recipes are licensed for all to use under the MIT License (see LICENSE file 
 * [Black Currant Honey Wheat Bread](Breads/Black%20Currant%20Honey%20Wheat%20Bread.md)
 * [Tomato and Basil Wheat Bread - Australia Edition](Breads/Tomato%20and%20Basil%20Wheat%20Bread%20-%20Australia%20Edition.md)
 
+## Ethiopia
+
+* [Awaze Tibs](Ethiopia/Awaze%20Tibs.md)
+
 ## Costa Rica
 
 * [Gallo Pinto](Costa%20Rica/Gallo%20Pinto.md)
