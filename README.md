@@ -17,6 +17,7 @@ All recipes are licensed for all to use under the MIT License (see LICENSE file 
 
 ## India
 
+* [Chicken Curry](India/Chicken%20Curry.md)
 * [Dal Makhani](India/Dal%20Makhani.md)
 * [Hummus](India/Hummus.md)
 
