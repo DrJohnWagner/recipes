@@ -13,18 +13,18 @@ Use your Instant Pot to make light and creamy hummus from split, dehusked Bengal
 
 ### CHANA DAL:
 
-* 1 litre chana dal, rinsed
-* 6 litres filtered water
+* 1.5 quarts chana dal, rinsed
+* 6 quarts filtered water
 
 ### HUMMUS:
 
 * 12 cups cooked chana dal, still warm
 * 2 cups warm cooking liquid
 * 1 cup tahini
-* 8 medium cloves garlic
+* 1 head garlic
 * 4 large lemons, juiced
 * 4 teaspoons kosher salt
-* 6 teaspoons ground cumin
+* 8 teaspoons ground cumin
 * 4 teaspoons smoked paprika
 * 1 cup extra virgin olive oil, highest quality
 
