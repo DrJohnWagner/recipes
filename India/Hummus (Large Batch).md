@@ -1,4 +1,3 @@
-
 # Instant Pot Hummus (Large Batch)
 
 **Prep Time:** 25 mins
@@ -25,8 +24,8 @@ Use your Instant Pot to make light and creamy hummus from split, dehusked Bengal
 * 8 medium cloves garlic
 * 4 large lemons, juiced
 * 4 teaspoons kosher salt
-* 2 teaspoons ground cumin
-* 1 teaspoon smoked paprika
+* 6 teaspoons ground cumin
+* 4 teaspoons smoked paprika
 * 1 cup extra virgin olive oil, highest quality
 
 ## Steps
